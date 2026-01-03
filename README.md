@@ -1,3 +1,3 @@
 # ME
 
-- 👋 Hi, guys I’m Kerorry
+- 👋 Hi, I’m Kerorry
